@@ -1,0 +1,1 @@
+Hi, It was an awesome experience having this workshop. Especially today I gave people some unique usernames😂and it was just wooww. Thankyou Mr Nehemiah Shout out to Dr Mbeke, Mr Mungai, Dr Ng'etich and our class rep Faith Mbugua
